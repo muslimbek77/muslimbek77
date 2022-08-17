@@ -1,4 +1,1 @@
-
-![Muslimbek Baratov](https://user-images.githubusercontent.com/48023644/184991856-24e08de8-4ee5-4250-a27a-0da6591756a9.gif)
-
-<i class="fab fa-python"></i>
+![Muslimbek Baratov (1)](https://user-images.githubusercontent.com/48023644/185086067-78af8cbd-bc6b-47cb-9198-a930411f4c04.gif)
